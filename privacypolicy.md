@@ -1,4 +1,4 @@
-<h1>ABCDelivery Privacy Notice</h1>
+<h1>ABCDelivery Privacy Policy/Notice</h1>
 
 <p>Last updated on 27th of December'2022</p>
 
